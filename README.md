@@ -1,2 +1,2 @@
 # ocid
-somali ocean activity live feed
+somalia ocean activity live feed
